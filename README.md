@@ -196,4 +196,4 @@ Inspired by the future of symbiotic human-AI relationships.
 
 ©️ 2026 EVE AI Project. All Rights Reserved.
 
-</div>
+</div>V
